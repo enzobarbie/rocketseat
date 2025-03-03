@@ -1,2 +1,1 @@
-# One piece is the best anime ever
-# Luffy 
+# One piece 
